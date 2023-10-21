@@ -133,11 +133,11 @@ But to get that you'd need to stand where I'm at.
 
 
 
-[^1]: He was into hiphop, and *Ice Ice Baby* (hush) was a first karaoke he/his brother did at a place we went with our parents.  Good number of years out of fashion.  I forgot the lyrics to *Lola* which was one of six songs I knew because a parent had a *Kinks* casette.  I froze in front of some very friendly drunk folks who started supplying lyrics then singing the song for me, a nice memory.
-[^2]: I recall thinking I'd be redeem myself by downplaying things.  It was a bit ridiculous thinking I'd cover up a (shallow) cut that ran a third of the length of my foot from parents.  Shout-out to [Danny D](https://en.wikipedia.org/wiki/Cartesian_theater).
+[^1]: He was into hiphop, and *Ice Ice Baby* (years past out of fashion) was a first karaoke he/his brother did at a place we went with our parents.  I forgot the lyrics to *Lola* (*The Kinks*) and froze in front of some very friendly drunk folks who started supplying lyrics then singing the song for me, a nice memory.
+[^2]: I recall thinking I'd redeem myself/impress them by downplaying things.  It was a bit ridiculous thinking I'd cover up a cut that ran over a third of the length of my foot from parents.  Shout-out to [Danny D](https://en.wikipedia.org/wiki/Cartesian_theater).
 [^3]: A couple memories of the brothers trying to get me to swear.  One chain of a dozen I still remember.
-[^4]: My first memory getting what money did was when we pooled change and walked to a gas station to buy the things needed to make some disgusting(ly) good chocolate concoction.  Thought he was very cosmopolitan for that.  A parent mentioned they used to raid the pantry when they visited and eat straight cake frosting.  Not sure if there was some food insecurity going on.
-[^5]: Went more with deleted lines, but apart from his attraction to violent activities he was openly/refreshingly into ballet or other dance.  
+[^4]: My first memory understanding what money did was when we pooled change and walked to a gas station to buy the things needed to make some disgusting(ly good) chocolate concoction.  Thought he was very cosmopolitan for that.  A parent mentioned they used to raid the pantry when they visited and eat straight cake frosting.  Not sure if there was some food insecurity going on.
+[^5]: Went more with deleted lines, but apart from his attraction to violent activities he was openly/refreshingly into ballet and other dance.  
 [^6]: [The Anarchist's Cookbook](https://en.wikipedia.org/wiki/The_Anarchist_Cookbook).  One visit he was extracting powder and using it to melt a plastic tank / army figures.
 [^7]: Never heard something like him tossing cinderblocks off an overpass, but definitely some stories of property damage.  A take is it makes you feel you have efficacy or control.
 [^8]: [Butterfly knife](https://www.youtube.com/watch?v=WjUQyki5V_U)
