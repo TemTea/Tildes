@@ -20,7 +20,7 @@ Years later I saw his mom, who remained friends with an aunt, at an event.  She 
 
 # Buds
 
-Start at a co-op, past "stop, collaborate and listen",[^1]
+Start at a co-op, past "Stop, collaborate and listen,"[^1]
 With MTV the root of the intention,
 In a basement you wanted to be blood brothers--
 Carve out a bond beyond our mother's knew each other.
@@ -50,7 +50,6 @@ That an open-faced PBH tastes great.
 
 Double digits and functionally illiterate,
 But makes elixir from some change and a QuikTrip.[^4]
-
 Cracked glowsticks and un-idle hands,
 For me it's my first chemical cryomance[^5]
 
@@ -77,8 +76,8 @@ Was a future for which you were ill-equipped.
 
 Incensed from a turned down dime,
 It turns out "I'm good" was not fine.
-Somewhere I'd crossed a line,
-Walked back until wall met spine.
+Somewhere I'd crossed a line.
+Walked back until wall met spine.  Then,
 
 Up by the xiphoid[^18], that's where the knife sits, and I
 Find how thin a line divides boy from divine,  or me from the lifeless.
@@ -86,12 +85,12 @@ That night since, I realized it could be a
 Stranger in the street or kid you idolized. 
 A second's separation, plus weight on a fine tip.
 The lesson learned: freeze, stay pliant.
-Heartbeats give measure to my silence.
+Heartbeats giving measure to the silence.
 We're all adrift in a sea of potential violence,
 Despite this, I guess we run a tight ship.[^9]
 Light from land sighted, skirt shoals, safely alighted.
 No Set to Osiris[^10], last words of the pilot,
-Left without light leaking iris.
+Left without light leaking iris, just raised Irish.
 Mood of Butcher, Corgan, Kid, or Eilish--
 Takes time to decompile it.
 
