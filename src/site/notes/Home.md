@@ -120,7 +120,7 @@ Or is it mostly just embellishment?
 Little bit of column A, little bit of calumny.
 Understand you never know, the entrance fee for empathy.
 All in all I'll take the hits as just some needed tempering, 
-Descent from man to Cynic'd be a tempting breed[^16].
+Descent from man to Cynic'd be a tempting breed.[^16]
 
 Did a woman steal those dogs, did she really feed them glass?
 Did you know the address of the neighborhood pederast?
@@ -139,7 +139,7 @@ But to get that you'd need to stand where I'm at.
 [^4]: My first memory getting what money did was when we pooled change and walked to a gas station to buy the things needed to make some disgusting(ly) good chocolate concoction.  Thought he was very cosmopolitan for that.  A parent mentioned they used to raid the pantry when they visited and eat straight cake frosting.  Not sure if there was some food insecurity going on.
 [^5]: Went more with deleted lines, but apart from his attraction to violent activities he was openly/refreshingly into ballet or other dance.  
 [^6]: [The Anarchist's Cookbook](https://en.wikipedia.org/wiki/The_Anarchist_Cookbook).  One visit he was extracting powder and using it to melt a plastic tank / army figures.
-[^7]: Never heard something like him tossing cinderblocks off an overpass, but definitely some stories of property damage.
+[^7]: Never heard something like him tossing cinderblocks off an overpass, but definitely some stories of property damage.  A take is it makes you feel you have efficacy or control.
 [^8]: [Butterfly knife](https://www.youtube.com/watch?v=WjUQyki5V_U)
 [^9]: Maybe downplaying the event, but I honestly appreciate how much goes right in the world by knowing how easily it can go wrong.  Most people are pretty pro-social most of their day.  The population splits on the day in biology class when you find out how much bug guts/poop particles/bacteria exists all around us into those that are disgusted and those that realize a little bit of bug guts isn't harmful.
 [^10]: Originally "hi to [Osiris](https://en.wikipedia.org/wiki/Osiris)" for the underworld theme, but the Set myth fit well.
