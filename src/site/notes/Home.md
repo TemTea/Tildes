@@ -21,7 +21,7 @@ Years later I saw his mom, who remained friends with an aunt, at an event.  She 
 # Buds
 
 Start at a co-op, past "stop, collaborate and listen",[^1]
-With MTV the source of the intention,
+With MTV the root of the intention,
 In a basement you wanted to be blood brothers--
 Carve out a bond beyond our mother's knew each other.
 
@@ -34,7 +34,7 @@ I bit til it bruised but not til it bled.
 The tack went unused, thought I could chew through.
 Plans eschewed we hit a local punk show or two.
 
-Head banging hurt but I kept the long hair,
+Head banging hurt but I copped the long hair,
 Got blood in buckets from a step on the wrong stair.[^2]
 What then passed from glass torn gash,
 A mad dash of kids shouting "Elevate it, stat"
@@ -45,19 +45,19 @@ Taught me to wrap a tourniquet,
 Better yet how to turn that ish to grift...
 "Suck in your gut, you can sell more magazines."
 Dumpster dives get some dope tapestries.
-Flavorful language that wins all debates,[^3]
+Trash talk wins all debates,[^3]
 That an open-faced PBH tastes great.
 
 Double digits and functionally illiterate,
 But makes elixir from some change and a QuikTrip.[^4]
 
-Cracked glowsticks and unidle hands,
+Cracked glowsticks and un-idle hands,
 For me it's my first chemical cryomance[^5]
 
-Disassemble fireworks: prep step of the Cookbook,[^6]
-To recreate armymen with shellshock and shook look.
+Disassemble fireworks, the prep step of the Cookbook,[^6]
+To recreate army men with shellshock and shook look.
 The knowledge was sometimes useful, 
-But you're the one with dilated pupil as you
+But you're the one with dilated pupils as you
 
 Hang out by an overpass, called by that doppler song,
 Addicted to the proof that's being youth and doing wrong.[^7]
@@ -136,8 +136,8 @@ But to get that you'd need to stand where I'm at.
 
 [^1]: He was into hiphop, and *Ice Ice Baby* (hush) was a first karaoke he/his brother did at a place we went with our parents.  Good number of years out of fashion.  I forgot the lyrics to *Lola* which was one of six songs I knew because a parent had a *Kinks* casette.  I froze in front of some very friendly drunk folks who started supplying lyrics then singing the song for me, a nice memory.
 [^2]: I recall thinking I'd be redeem myself by downplaying things.  It was a bit ridiculous thinking I'd cover up a (shallow) cut that ran a third of the length of my foot from parents.  Shout-out to [Danny D](https://en.wikipedia.org/wiki/Cartesian_theater).
-[^3]: A couple memories of the brothers being entertained by trying to get me to say swears.  One chain of a dozen I still remember.
-[^4]: Remember thinking he was all cosmopolitan when we pooled change and walked to a gas station to buy the things needed to make some disgusting(ly) good chocolate concoction.  A parent mentioned they used to raid the pantry when they visited and eat straight cake frosting.  Not sure if there was some food insecurity going on.
+[^3]: A couple memories of the brothers trying to get me to swear.  One chain of a dozen I still remember.
+[^4]: My first memory getting what money did was when we pooled change and walked to a gas station to buy the things needed to make some disgusting(ly) good chocolate concoction.  Thought he was very cosmopolitan for that.  A parent mentioned they used to raid the pantry when they visited and eat straight cake frosting.  Not sure if there was some food insecurity going on.
 [^5]: Went more with deleted lines, but apart from his attraction to violent activities he was openly/refreshingly into ballet or other dance.  
 [^6]: [The Anarchist's Cookbook](https://en.wikipedia.org/wiki/The_Anarchist_Cookbook).  One visit he was extracting powder and using it to melt a plastic tank / army figures.
 [^7]: Never heard something like him tossing cinderblocks off an overpass, but definitely some stories of property damage.
