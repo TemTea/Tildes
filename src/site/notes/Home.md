@@ -141,7 +141,7 @@ But to get that you'd need to stand where I'm at.
 [^6]: [The Anarchist's Cookbook](https://en.wikipedia.org/wiki/The_Anarchist_Cookbook).  One visit he was extracting powder and using it to melt a plastic tank / army figures.
 [^7]: Never heard something like him tossing cinderblocks off an overpass, but definitely some stories of property damage.  A take is it makes you feel you have efficacy or control.
 [^8]: [Butterfly knife](https://www.youtube.com/watch?v=WjUQyki5V_U)
-[^9]: Maybe downplaying the event, but I honestly appreciate how much goes right in the world by knowing how easily it can go wrong.  Most people are pretty pro-social most of their day.  The population splits on the day in biology class when you find out how much bug guts/poop particles/bacteria exists all around us into those that are disgusted and those that realize a little bit of bug guts isn't harmful.
+[^9]: Maybe downplaying the event, but I came out appreciating how much goes right in the world by knowing how easily it can go wrong.  Most people are pretty decent.
 [^10]: Originally "hi to [Osiris](https://en.wikipedia.org/wiki/Osiris)" for the underworld theme, but the Set myth fit well.
 [^11]: [Lone Wolf and Cub](https://en.wikipedia.org/wiki/Lone_Wolf_and_Cub) for a mocking exaggeration of the relationship dynamic.  That plus the DC [Lobo](https://en.wikipedia.org/wiki/Lobo_(DC_Comics)) were also comics I was exposed to around then / the brother and friends liked.
 [^12]: Scrapped lines on wrestling, that stuff.  Meant to be from his perspective on the unfairness of his situation.
@@ -150,4 +150,4 @@ But to get that you'd need to stand where I'm at.
 [^15]: There were a couple events we got taken to.  Moshpits and ~~bad~~ enthusiastic metal/punk that we went to.  The noise/pits/head banging were too much for me, but the inspiration to grow my hair out was probably seeing people with liberty spikes and the like.  One group just repeated "Devil man, devil man, more a man than you're a mannn", but I couldn't make that work and scrapped other mentions.
 [^16]: A lot of the story I got from unreliable rumors/recollections.  Trying to understand other's perspective makes it draining to be around people, especially if there's a lot of questionable facts.  Not great at turning off that part of my brain.
 [^17]: Apologies to the graphic designers if you can't use feathering that way.  
-[^18]: Biggest gaff was misremembering xiphoid as the coccyx.  Didn't have time to rework it so I forced xiph*id*.
+[^18]: Biggest gaff was misremembering the [xiphoid process](https://healthjade.net/wp-content/uploads/2019/06/xiphoid-process.jpg) as something that would've rhymed.  Couldn't think of any great replacement so I forced xiph*id*.
