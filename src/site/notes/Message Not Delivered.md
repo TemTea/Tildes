@@ -2,7 +2,6 @@
 {"dg-publish":true,"permalink":"/message-not-delivered/"}
 ---
 
-
 Eyes dyed in sky, arms stretched then akimbo
 I hope you don't hate when I reduce you to a symbol
 
