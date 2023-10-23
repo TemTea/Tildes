@@ -80,7 +80,7 @@ Somewhere I'd crossed a line.
 Walked back until wall met spine.  Then,
 
 Up by the xiphoid[^18], that's where the knife sits, and I
-Find how thin a line divides boy from divine,  or me from the lifeless.
+Find how thin a line divides boy from divine, or me from the lifeless.
 That night since, I realized it could be a 
 Stranger in the street or kid you idolized. 
 A second's separation, plus weight on a fine tip.
