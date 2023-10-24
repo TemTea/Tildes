@@ -2,20 +2,20 @@
 {"dg-publish":true,"permalink":"/message-not-delivered/"}
 ---
 
-Eyes dyed in sky, arms stretched then akimbo
+Eyes dyed in sky, arms stretched then akimbo--
 I hope you don't hate when I reduce you to a symbol
 
-Traced contours with a starmap and a fingertip
-One amongst the Pleiades or handle of the Little Dip  
+Traced contours with a star map and fingertip
+One amongst the Pleiades or handle of the Little Dip[^1]
 
 On that hill where greyed men argued like child kings
-I played an instrument and you joined in to sing...
+I played an instrument and you joined in to sing...[^2]
 
 Far faint lights, through the void or silence
-I still get to look to you for guidance.
+I still get to look to you for guidance
 
-In Hangman I taught her syzygy, and she taught me jazz
-And how to avoid themes of Tower cards of our past
+In Hangman I taught her syzygy, and she taught me jazz[^3]
+And how to avoid themes of Tower cards of the past
 I brought up mentalism and the art of Cold Reading
 She promised that there's something West of East of Eden
 
@@ -23,15 +23,15 @@ Memories like a sieve, fit for self-deceiving
 But palm lines read, told of release from bleeding
 
 After repeated graceful redirections
-You get the hint to stop asking those sorts of questions
-And after you stop asking those sort of questions
+You get the hint to stop asking those sorts of questions, and
+After you stop asking those sort of questions
 Maybe regret is what you're left with
 
 Always vague on the specifics, but
 It was just a matter of time before your light got eclipsed
 
 Now parted by Pluto
-A reflected truth showed
+The reflected truth showed
 As if by the moon's glow--
 Pops Jupiter to Juno
 Brother was a bluenose
@@ -39,12 +39,12 @@ Fated for the hoosegow
 An addled, violent, Bluto
 Apogee to nadir, you would hid your true lows
 
-Tidally locked you only showed your bright side
-While I cherish memories running free in the night time
+Tidally locked the way you only showed a bright side
+And while I cherish memories running free in the night time
 You'd fend off any offer of an offer a lifeline
 Trauma taught a tether was a tool meant to bind
 
-Your life's exegesis: support is a weakness
+Your life's exegesis: support it is a weakness
 Any closeness an opening to pick apart your pieces
 A crutch becomes prosthesis
 Anything beyond your inner space only fit to lease--
@@ -53,32 +53,32 @@ Up in the Oort cloud lending impulse to the torpid
 An island in the company of four and twenty corvids
 ~~At measured distance we lent impulse to the torpid~~
 
-Sure, we're all stardust.  Photos of Arbus
+Sure, we're all stardust.  Photos of Arbus[^4]
 Fallen far afield from the target market
 The raft we shipped the S.S. Shared Hardships
 With little love of lucre or largesse
 The bare-thread art kids, 
 Hit spliffs, working red-eye shifts, 
-But still emit that red light, drift (?)
+Til they emit that red light, drift[^5]
 
 After warehouse celebrations of Saturn
-In descent you spy not the healthiest of patterns.
+In descent you spy not the healthiest of patterns[^6]
 
-Ken closed eyes while in transit
+K closed eyes while in transit[^7]
 Celestial smile that got occluded by the manic
 The frantic panic of the passenger the next seat over 
 Unable to impede a supernova
 
 Signs open to early detection
-dismissed as youthful indiscretion
-Keep the company of masters of misdirection
+dismissed as youthful indiscretion, you
+Keep the company of masters of misdirection[^8]
 It gets second nature, the habit of second-guessing
 
 Heard about your death through a game of telephone
 By the time we got the message you were long gone
 
 I know your mass in your absence
-Felt ~~Seen~~ it through a warping of the fabric
+Felt it through a warping of the fabric[^9]
 Clocks no longer track accurate
 Time goes slow yet fast 
 When memories you make just aren't lasting
@@ -93,12 +93,12 @@ Any joy is a distraction, comfort a malefaction
 Each day you stay will eat away as it's delay of action
 Up the tracks in a bath, slit
 
-Dunno dude, guess I got survivors guilt
+Dunno man, guess I got survivors guilt
 World keeps spinning just with axis tilt
 An unhealthy epitaph, the excuse I'd draft:
 Continuing with what you'd built
 
-Dunno dude, I got abandonment baggage
+Dunno dude, guess I got abandonment baggage
 Follows where I go but keep it stuffed in the attic.
 On nights where there's low light pollution
 I'll assemble it to get a view of something human
@@ -107,36 +107,36 @@ Still struggle with thoughts that my proximity is toxic, and yet
 I miss your adjacency, through borrowed eyes I'd see that
 Like life's a box of nascent seeds-- you made it breathe
 Unsure what Scholomance or alchemy
-You were a giving breed, big bro to me
+You were a giving breed, a big bro to me
 The highest tree your canopy, shelter from the storms. 
-Bi but never frosty connecting worlds like I'm Norse 
+Bi but never frosty connecting worlds like I'm Norse[^10]
 But the roots diseased, seen in rotten fruits and wilted leaves
-A serpent lurks and eats, til replete with grief
+A serpent lurks and eats, til replete with grief[^11]
 You crossed a sea to keep from being seen weak
 Hold your guts to keep them from falling free
 Under that pressure the only escape was release
 
-Or, the first time that we spoke alone it was to mend a broken wing
+Or, the first time that we spoke alone it was to mend a broken wing[^12]
 Set the tone that you're the type that tends to tend to wounded things
 Beyond the scope of what you may be capable of handling.
-Different person maybe, but suffers a shared malady.
+Different person sure, but suffers a shared malady.
 
-Or, you called me up way late at night and demanded the move I choose
+Or, you called me up way late at night and demanded the move I choose[^13]
 You'd make a cabin in the woods, needed: Irish, Chinese, Jew, ...
 You stalked a girl, a family friend, when she danced it was just for you--
 The quirks were taking on a darker hue
 
-Or, you moved to Portland with your gal to build a life past parents pad, 
+Or, you moved to Portland with your gal to build a life past parents pad, [^14]
 Fought the system in the streets, fist raised and shouting out ACAB.
 Down with other people's problems, you'd fight all of the world's ills,
 But something tripped you up and then you lost the battle with the pills.
 
-Or, you slept up under Cobain's bridge,
-Had a pace/energy that few could match.
-Mercurial moods were got much,
-When you died she got put on blast.
+You slept up under Cobain's bridge, had a pace/energy that few could match.[^15]
+Mercurial moods just got much, when you died she got put on blast.
+Now she's older then you were, heard it through the vine 
+That she's working as an escort, but she liked to walk a line
 
-Or, your mom ran off with another man, your school life on arrival, dead
+Your mom ran off with another man, your school life on arrival, dead[^16]
 Your dad walked to the local park and put a bullet in his head
 Now your sister was your ward, hope you're out their managing, but
 Maybe you just passed it on, the pain that you'd been channeling
@@ -148,8 +148,8 @@ But before adoption you'd been used as an ashbin
 
 Sean you a spaceman, the energy and calm and patience--
 To a kid [you were] unassuming and delightful
-Some might say you were just too gentle,
-I'd say your choice to go quiet to the night, though
+Some might say for the world you're just too gentle
+I'd say it's your choice to go quiet to the night
 
 To anyone that didn't make the list or couldn't fit the scheme
 Anyone too distant for me to get their weights or histories:
@@ -163,62 +163,57 @@ So I'll look up while writing bars
 But if I knew your essence I would bottle and mass produce you
 
 My wabi-sabi kimosabes,
-I would mint a million copies,
+I would mint a million copies, the
 Often goofy, sometimes bawdry
-Adds some value, not shit from Lockheed.
+Adds some value, not shit from Lockheed
 Bric-a-braks, knickknacks, gimcracks, and tchotchkes--
-You'd find value in the motley.
+You'd find value in the motley
 
-...and I'm not ignoring the flaws beneath the surface,
+...and I'm not ignoring the flaws beneath the surface
 But I've seen you at your best and that's what took purchase
-Cut through thick city sussurus, 
-Like life's better playing co-op not verseless,
+Cuts through thick city sussurus
+Like life's better playing co-op not verseless
 
-Y'al had some musical souls
-Apollonian lute trailing Sol
+Y'al had some musical souls, Apollonian lute trailing Sol[^17]
 My never-subtle Suns, fuel to make those shuttle runs
 Getting through the gibbous day and building up them bubble buns
 
-Girl from a sunny world
-You wore clothes that didn't fit
-I'm a monster in a maze
-Acting like a hypocrite
-If you heard me talk that way
-You would probably flip your shit
-When I would self sabotage
-Thought that I'd get that visit...
-
-But I'm stuck here, terrestrial, 
-Daily affirmations: I'm my favorite vegetable
-What do you do for fun? Spelunking... in anhedonia
-I'm a competitive ranked atoner
-
 So I'll be a home loaner to avoid being a home aloner
 A loam comber, that's growing my own Roma
-A ruins of Rome roamer, skipping the owned Mona
+A ruins of Rome roamer, skipping the owned Mona[^18]
 Straight to the Dover, slopes to sober a coma
-To make tombs for known soldier who shouldered undue boulders
+To make tombs for known soldiers who shouldered undue boulders
 Hewn from moonstone, my own soma
 Code donor, Semi-tone blower
 Play blue notes, make em smolder
 Break a cycle, take the coda
 
-If I escape the maze of Borges paved with ablution and abasement
+That's to say if I escape the maze of Borges paved with ablution and abasement[^19]
 I think I'll owe it to your constellations 
 And if I way lose my way, stumble in a haze I'll use you for orientation
 
 To all recipients unreachable, I appreciate each of you
 Put on tea for two
 
+[^1]: The [Pleiades](https://en.wikipedia.org/wiki/Pleiades) are the Seven Sisters, "sis" was used as a term of endearment.  The handle of the Little Dipper is the [North Star](https://en.wikipedia.org/wiki/Polaris) used for navigation.
+[^2]: Set on the hill I met S on, where I used to play in some pick-up soccer.  Teams often chosen between two elderly Middle Eastern guys, both named Jamal.  One of them cheated a lot and argued a lot, the other was endlessly patient... so there was a lot of arguing, but just one "child king".
+[^3]: A play off Hanged Man, leading into the Tower card reference.  I was an on-the-spectrum showoff, busting out 'syzygy' in a friendly game, and hinting someone's beliefs were dumb by talking about mentalism.  'Jazz' is better.  S was naturally musical and up for things like palm reading or tarot, which softened me up to a parents similar (harmful) tendencies.  In a bit of coincidence [I found](https://labyrinthos.co/blogs/tarot-card-meanings-list/the-hanged-man-meaning-major-arcana-tarot-card-meanings) the man is hanging from the world tree, later referenced and a symbol for K, and a lot of the symbolism is surprisingly on point.
+[^4]: [Diane Arbus](https://en.wikipedia.org/wiki/Diane_Arbus), famous for befriending and photographing outsiders/marginalized groups.
+[^5]: That section speaking on some of the community I met through K that distanced themselves, not all nicely, after he died.  A play off [redshift](https://en.wikipedia.org/wiki/Redshift) for the growing distance and the subsequent car verse.
+[^6]: More astronomy/mythology refs with Saturnalia and 'descending' for the come down from party drugs that was getting self-destructive in that group.
+[^7]: I have a memory of driving late at night, K on top of the world.  Getting swept up in the energy with him... then realizing we'd almost crashed/died.
+[^8]: I'd often blame myself for not doing more.  Doing *something*, since there were so many warning signs I just wasn't getting.  At the same time everyone was good at deflecting concern.  That sort of thing stokes your neuroticism... second-guessing like "When you say you're okay, are you okay okay?  Or are you okay like K?"
+[^9]: "Heaviness" warping space-time for the sort of "stuck" you get with depression or trauma
+[^10]: Eheh, I'm getting why people don't like pun smiths.  A play on K's orientation and tendency to connect people by the [bifrost](https://en.wikipedia.org/wiki/Bifr%C3%B6st) .  For some reason he just liked Yggdrasil.  A necklace of it was the only memento I had after his death, ended up giving it to a s/o to cheer them up and work on trust... promptly lost, lul.  But a sibling made me an awesome stained glass piece.  Another nice coincidence was finding it ties in to the [Pole Star](https://en.wikipedia.org/wiki/Yggdrasil#Shamanic_origins).  
+[^11]: So [Nidhogg](https://en.wikipedia.org/wiki/N%C3%AD%C3%B0h%C3%B6ggr) got used for the things eating away at him under the surface.
+[^12]: Someone I dated was in a peer group in college.  When reflecting on how much I was standoffish I'd sometimes think about how we'd known each other for 4 years but hadn't ever spoken one-on-one until she'd found a hurt bird and asked for help taking it to a clinic.
+[^13]: Another college friend.  Eccentric, religious.  After he graduated he ended up going to another place, studying Egyptology and possibly getting a little [Hotep](https://en.wikipedia.org/wiki/Hoteps).  He reconnected and talked about pursuing a family friend, "coincidentally" at his new school, many years younger and clearly uncomfortable.  I'd get calls at 3am asking me what my move is, then explaining he'd gotten into competitive Pokemon.  Increasing stalker tendencies, and arrested/institutionalized.  Eventually I went no-contact, then years later I heard he died.
+[^14]: Person I mentioned the anniversary of [here](https://tildes.net/~health.mental/x29/hi_how_are_you_mental_health_support_and_discussion_thread_june_2021#comment-6jgt).
+[^15]: Musician that made the mentioned mecca.  His fiancee was the person I knew, and she was like... 12(?) years younger and a teenager.  She broke things off, wanting to travel, and he ended his life.  She got blamed by some people.  Randomly heard from her (note in a mailbox), and that she was an circus-y performer / escort, but seemed to be okay.
+[^16]: A neighbor that just had a rough lot.  Nothing he excelled in and teased, then he had his family fall apart.
+[^17]: Some cut references made this make more sense.  Some Nietzsche mentions, and a bit of media that was one of the last things I watched with S.
+[^18]: Thoughts on what to do in the future to enjoy life a bit.  A great uncle praised Italy in a way that made it sound amazing.  Occasionally I'll try gardening.  Being a couch surfing host was a lot of fun.
+[^19]: The [Borges mention](https://en.wikipedia.org/wiki/The_Garden_of_Forking_Paths) tied into more cut references.
 
-[^1]: "Pantagruelism", a form of [stoicism](https://en.wikipedia.org/wiki/Stoicism "Stoicism"), developed and applied throughout, is (among other things) "a certain gaiety of spirit confected in disdain for fortuitous things" [wiki](https://en.wikipedia.org/wiki/Gargantua_and_Pantagruel#cite_note-8)
-[^2]: Seven sisters
-[^3]: Pole star/Polaris/North Star is the [tail of the Little Dipper](![Galactic Myths and Legends | Constellations, North star ...](https://external-content.duckduckgo.com/iu/?u=https%3A%2F%2Fi.pinimg.com%2F736x%2F87%2Fcc%2F48%2F87cc4877a1ea1d3df17b927d8d5d9ec0--big-dipper-little-dipper-sister-tattoos.jpg&f=1&nofb=1))
-[^4]: [Infected Mushroom 04'](https://www.youtube.com/watch?v=mDdVH9ZzftI) 
-[^5]: Good hangman words that take different approaches.  Hanged Man card refrence.  Learning to be more improvosational.
-[^6]: Plutonic friends.
-[^7]: https://nietzsche.thefreelibrary.com/Thus-Spake-Zarathustra/57-1
-[^8]: The conception of the tree rising through a number of worlds is found in northern Eurasia and forms part of the shamanic lore shared by many peoples of this region. This seems to be a very ancient conception, perhaps based on the [Pole Star](https://en.wikipedia.org/wiki/Pole_Star "Pole Star"), the centre of the heavens, and the image of the central tree in Scandinavia may have been influenced by it.... Among [Siberian](https://en.wikipedia.org/wiki/Siberia "Siberia") shamans, a central tree may be used as a ladder to ascend the heavens.
-[^9]: A friend's abusive ex worked at Lockheed
-[^10]: https://www.goodreads.com/quotes/7915225-i-say-unto-you-one-must-still-have-chaos-in
 
+![Pasted image 20231023213508.png|undefined](/img/user/Pasted%20image%2020231023213508.png)
