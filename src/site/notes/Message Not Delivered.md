@@ -205,6 +205,7 @@ Put on tea for two
 [^8]: I'd often blame myself for not doing more.  Doing *something*, since there were so many warning signs I just wasn't getting.  At the same time everyone was good at deflecting concern.  That sort of thing stokes your neuroticism... second-guessing like "When you say you're okay, are you okay okay?  Or are you okay like K?"
 [^9]: "Heaviness" warping space-time for the sort of "stuck" you get with depression or trauma
 [^10]: Eheh, I'm getting why people don't like pun smiths.  A play on K's orientation and tendency to connect people by the [bifrost](https://en.wikipedia.org/wiki/Bifr%C3%B6st) .  For some reason he just liked Yggdrasil.  A necklace of it was the only memento I had after his death, ended up giving it to a s/o to cheer them up and work on trust... promptly lost, lul.  But a sibling made me an awesome stained glass piece.  Another nice coincidence was finding it ties in to the [Pole Star](https://en.wikipedia.org/wiki/Yggdrasil#Shamanic_origins).  
+![Pasted image 20231023213508.png|undefined](/img/user/Pasted%20image%2020231023213508.png)
 [^11]: So [Nidhogg](https://en.wikipedia.org/wiki/N%C3%AD%C3%B0h%C3%B6ggr) got used for the things eating away at him under the surface.
 [^12]: Someone I dated was in a peer group in college.  When reflecting on how much I was standoffish I'd sometimes think about how we'd known each other for 4 years but hadn't ever spoken one-on-one until she'd found a hurt bird and asked for help taking it to a clinic.
 [^13]: Another college friend.  Eccentric, religious.  After he graduated he ended up going to another place, studying Egyptology and possibly getting a little [Hotep](https://en.wikipedia.org/wiki/Hoteps).  He reconnected and talked about pursuing a family friend, "coincidentally" at his new school, many years younger and clearly uncomfortable.  I'd get calls at 3am asking me what my move is, then explaining he'd gotten into competitive Pokemon.  Increasing stalker tendencies, and arrested/institutionalized.  Eventually I went no-contact, then years later I heard he died.
@@ -214,6 +215,3 @@ Put on tea for two
 [^17]: Some cut references made this make more sense.  Some Nietzsche mentions, and a bit of media that was one of the last things I watched with S.
 [^18]: Thoughts on what to do in the future to enjoy life a bit.  A great uncle praised Italy in a way that made it sound amazing.  Occasionally I'll try gardening.  Being a couch surfing host was a lot of fun.
 [^19]: The [Borges mention](https://en.wikipedia.org/wiki/The_Garden_of_Forking_Paths) tied into more cut references.
-
-
-![Pasted image 20231023213508.png|undefined](/img/user/Pasted%20image%2020231023213508.png)
