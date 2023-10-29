@@ -16,6 +16,6 @@ Testing
 
 
 
-$$
-\Phi
-$$
+Math supported if you want it $\Phi_0(\frac{1}{2})$ 
+
+![[Sample.mp3]]
