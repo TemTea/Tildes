@@ -22,14 +22,14 @@ Years later I saw his mom, who remained friends with an aunt, at an event.  She 
 
 Start at a co-op, past "Stop, collaborate and listen,"[^1]
 With MTV the root of the intention,
-In a basement you wanted to be blood brothers--
-Carve out a bond beyond our mother's knew each other.
+In a basement you wanted to be blood brothers.
+Carve out a bond beyond "our mother's knew each other.""
 
 You? You had a scab to pick, not exactly courage test.
 Me, I had tooth and tack and set to task with pearly set.
 It's here I guess I must confess, as minutes crept
-It's revealed that I'm invertebrate. 
-As I left a mark but I drew no red,
+It's revealed that I'm invertebrate. As
+I left a mark but I drew no red,
 I bit til it bruised but not til it bled.
 The tack went unused, thought I could chew through.
 Plans eschewed we hit a local punk show or two.
