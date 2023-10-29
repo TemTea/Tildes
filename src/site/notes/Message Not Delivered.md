@@ -192,6 +192,7 @@ I think I'll owe it to your constellations
 And if I way lose my way, stumble in a haze I'll use you for orientation
 
 To all recipients unreachable, I appreciate each of you
+Put on tea for two
 
 [^1]: The [Pleiades](https://en.wikipedia.org/wiki/Pleiades) are the Seven Sisters, "sis" was used as a term of endearment.  The handle of the Little Dipper is the [North Star](https://en.wikipedia.org/wiki/Polaris) used for navigation.
 [^2]: Set on the hill I met S on, where I used to play in some pick-up soccer.  Teams often chosen between two elderly Middle Eastern guys, both named Jamal.  One of them cheated a lot and argued a lot, the other was endlessly patient... so there was a lot of arguing, but just one "child king".
