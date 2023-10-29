@@ -18,4 +18,8 @@ Testing
 
 Math supported if you want it $\Phi_0(\frac{1}{2})$ 
 
+
+![[Recording 20231029025917.webm]]
+
+
 ![[Sample.mp3]]
