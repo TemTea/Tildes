@@ -19,14 +19,13 @@ Years later I saw his mom, who remained friends with an aunt, at an event.  She 
 </details>
 
 
+# Buds
+
 <figure>
-  <figcaption>Buds (using ThadKidGoran's "Nostalgia"</figcaption>
   <audio controls src="https://www.dropbox.com/scl/fi/jmmr34aws0s3wpms48rk8/Buds.mp3?rlkey=mqivqe1haevn6dpaxnpyl52bf&dl=0&raw=1">
     <a href="https://www.dropbox.com/scl/fi/jmmr34aws0s3wpms48rk8/Buds.mp3?rlkey=mqivqe1haevn6dpaxnpyl52bf&dl=0&raw=1"> Download audio </a>
   </audio>
 </figure>
-
-# Buds.mp3 
 
 *Using [ThatKidGoran's](https://www.youtube.com/@ThatKidGoran) [Nostalgia](https://www.youtube.com/watch?v=NTo4vYonmyM) instrumental *
 
