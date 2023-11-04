@@ -164,4 +164,4 @@ But to get that you'd need to stand where I'm at.
 [^18]: Biggest gaff was misremembering the [xiphoid process](https://healthjade.net/wp-content/uploads/2019/06/xiphoid-process.jpg) as something that would've rhymed.  Couldn't think of any great replacement so I forced xiph*id*.
 
 
-![Pasted image 20231103232331.png|undefined](/img/user/Pasted%20image%2020231103232331.png)
+![IsThis.png|undefined](/img/user/IsThis.png)
