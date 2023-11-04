@@ -3,7 +3,7 @@
 ---
 
 <details><summary>Background</summary>
-This is about someone I knew from 3 to ~13.  He (~2 years older than me)/his older brother(~5 years older?) were homeschooled, and we knew each other through a co-op grocery thing.
+This is about someone I knew from 3 to ~13.  He (~2 years older than me)/his older brother(~5 years older?) were homeschooled, and we knew each other through a co-op grocery friend group our mom's were part of.
 <br /><br />
 At some point we stopped seeing each other.  I don't know if it was our parents fighting, life pressures, or something like pressure from a protracted custody battle that probably didn't look favorably on things like a kid stepping on a piece of glass or naively sharing stories about dumpster diving.  
 <br /><br />
@@ -15,7 +15,9 @@ The conversation in general was awkward.  Maybe he'd been hurt when we stopped s
 <br /><br />
 Some time later when we were inside he pulled a knife on me, and kept yelling "fucking preppy, fucking preppy piece of shit".  A lot of my memory is bad, but certain things act as a bit of a checksum for me in memories.  Vivid auditory memories like that are usually pretty accurate.  I froze, and I'm guessing when the moment passed I made a call to get picked up.  I have a small scar near my xiphoid process but I can't recall if I was actually cut.
 <br /><br />
-Years later I saw his mom, who remained friends with an aunt, at an event.  She said he was doing okay.  He was working as a janitor, got grounded with martial arts, and was on medication for schizophrenia.  It recontectualized that maybe some things he said were from early paranoia... evil neighbors or step-sister.  I think I later heard he had a daughter and was doing well, which I really hope is the case.  During a dinner with the aunt a while back she mentioned someone in her friend group had been hurt that no one ever asked her about her son who was in jail, and this guy was who my mind snapped to.  Just a hunch.  I'm not sure I wanted to know, or maybe just like the aunt/friend group I thought that was intrusive, so I didn't ask.
+Years later I saw his mom, who remained friends with an aunt, at an event.  She said he was doing okay.  He was working as a janitor, got grounded with martial arts, and was on medication for schizophrenia.  It recontextualized that maybe some things he said were from early paranoia... evil neighbors or step-sister, a lady who stole stole dogs and fed glass to others, a neighborhood child molester.  
+<br /><br />
+I think I later heard he had a daughter and was still well, which I really hope is the case.  During a dinner with the aunt a while back she mentioned someone in her friend group had been hurt that no one ever asked her about her son who was in jail, and this guy was who my mind snapped to.  Just a hunch.  I'm not sure I wanted to know, or maybe just like the aunt/friend group I thought that was intrusive, so I didn't ask.
 </details>
 
 
@@ -27,17 +29,17 @@ Years later I saw his mom, who remained friends with an aunt, at an event.  She 
   </audio>
 </figure>
 
-*Using [ThatKidGoran's](https://www.youtube.com/@ThatKidGoran) [Nostalgia](https://www.youtube.com/watch?v=NTo4vYonmyM) instrumental *
+*Using [ThatKidGoran's](https://www.youtube.com/@ThatKidGoran) [Nostalgia](https://www.youtube.com/watch?v=NTo4vYonmyM) instrumental*
 
 Start at a co-op, past "Stop, collaborate and listen,"[^1]
 With MTV the root of the intention,
 In a basement you wanted to be blood brothers.
-Carve out a bond beyond "our mother's knew each other.""
+Carve out a bond beyond "our mother's knew each other."
 
 You? You had a scab to pick, not exactly courage test.
 Me, I had tooth and tack and set to task with pearly set.
 It's here I guess I must confess, as minutes crept
-It's revealed that I'm invertebrate. As
+It's revealed that I'm invertebrate.
 I left a mark but I drew no red,
 I bit til it bruised but not til it bled.
 The tack went unused, thought I could chew through.
@@ -46,11 +48,11 @@ Plans eschewed we hit a local punk show or two.
 Head banging hurt but I copped the long hair,
 Got blood in buckets from a step on the wrong stair.[^2]
 What then passed from glass torn gash,
-A mad dash of kids shouting "Elevate it, stat"
+A mad dash of kids shouting "Elevate it, stat."
 
 [I was] all prepared for mum to be the word,
 A community production Cartesian theater.
-Taught me to wrap a tourniquet, 
+Taught me how to wrap a tourniquet, 
 Better yet how to turn that ish to grift...
 "Suck in your gut, you can sell more magazines."
 Dumpster dives get some dope tapestries.
@@ -78,7 +80,7 @@ Any of a dozen things that could've headed south.
 It's a couple years till we meet again, for a birthday wish,
 During the visit an unseen switch got flipped, then it's
 
-Flip flip, quick moves of wrist,
+Flick flick, quick moves of wrist,
 Turns a butterfly[^8] to something dangerous.
 The only hint of that conniption fit,
 Was a future for which you were ill-equipped.
@@ -89,7 +91,7 @@ Somewhere I'd crossed a line.
 Walked back until wall met spine.  Then,
 
 Up by the xiphoid[^18], that's where the knife sits, and I
-Find how thin a line divides boy from divine, or me from the lifeless.
+Find how thin a line divides boy from the divine, or me from the lifeless.
 That night since, I realized it could be a 
 Stranger in the street or kid you idolized. 
 A second's separation, plus weight on a fine tip.
@@ -103,11 +105,11 @@ Left without light leaking iris, just raised Irish.
 Mood of Butcher, Corgan, Kid, or Eilish--
 Takes time to decompile it.
 
-I ride home in slo-mo.
+Ride home's in slo-mo.
 Take stock: a low blow, like highly inapropro.
 No gold Acapulco? No Cub and Lone Lobo?[^11]
 No, champagne and cold roe,
-The quid pro quo of Hogan vs. Stone Cold.[^12]
+The [world's] quid pro quo of Hogan vs. Stone Cold.[^12]
 
 I recognize it's undeserved, a product of the pop that's underserved.
 Undeterred my mind overloaded in the moment and the meaning, 
