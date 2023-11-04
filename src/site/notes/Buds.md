@@ -18,7 +18,15 @@ Some time later when we were inside he pulled a knife on me, and kept yelling "f
 Years later I saw his mom, who remained friends with an aunt, at an event.  She said he was doing okay.  He was working as a janitor, got grounded with martial arts, and was on medication for schizophrenia.  It recontectualized that maybe some things he said were from early paranoia... evil neighbors or step-sister.  I think I later heard he had a daughter and was doing well, which I really hope is the case.  During a dinner with the aunt a while back she mentioned someone in her friend group had been hurt that no one ever asked her about her son who was in jail, and this guy was who my mind snapped to.  Just a hunch.  I'm not sure I wanted to know, or maybe just like the aunt/friend group I thought that was intrusive, so I didn't ask.
 </details>
 
-# [[Buds.mp3]] 
+
+<figure>
+  <figcaption>Buds (using ThadKidGoran's "Nostalgia"</figcaption>
+  <audio controls src="https://www.dropbox.com/scl/fi/jmmr34aws0s3wpms48rk8/Buds.mp3?rlkey=mqivqe1haevn6dpaxnpyl52bf&dl=0&raw=1">
+    <a href="https://www.dropbox.com/scl/fi/jmmr34aws0s3wpms48rk8/Buds.mp3?rlkey=mqivqe1haevn6dpaxnpyl52bf&dl=0&raw=1"> Download audio </a>
+  </audio>
+</figure>
+
+# Buds.mp3 
 
 *Using [ThatKidGoran's](https://www.youtube.com/@ThatKidGoran) [Nostalgia](https://www.youtube.com/watch?v=NTo4vYonmyM) instrumental *
 
