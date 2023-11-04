@@ -39,7 +39,7 @@ Fated for the hoosegow
 An addled, violent, Bluto
 Apogee to nadir, you would hid your true lows
 
-Tidally locked the way you only showed a bright side
+Tidally locked the way you'd only show a bright side
 And while I cherish memories running free in the night time
 You'd fend off any offer of an offer a lifeline
 Trauma taught a tether was a tool meant to bind
