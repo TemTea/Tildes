@@ -18,7 +18,9 @@ Some time later when we were inside he pulled a knife on me, and kept yelling "f
 Years later I saw his mom, who remained friends with an aunt, at an event.  She said he was doing okay.  He was working as a janitor, got grounded with martial arts, and was on medication for schizophrenia.  It recontectualized that maybe some things he said were from early paranoia... evil neighbors or step-sister.  I think I later heard he had a daughter and was doing well, which I really hope is the case.  During a dinner with the aunt a while back she mentioned someone in her friend group had been hurt that no one ever asked her about her son who was in jail, and this guy was who my mind snapped to.  Just a hunch.  I'm not sure I wanted to know, or maybe just like the aunt/friend group I thought that was intrusive, so I didn't ask.
 </details>
 
-# Buds
+# [[Buds.mp3]] 
+
+*Using [ThatKidGoran's](https://www.youtube.com/@ThatKidGoran) [Nostalgia](https://www.youtube.com/watch?v=NTo4vYonmyM) instrumental *
 
 Start at a co-op, past "Stop, collaborate and listen,"[^1]
 With MTV the root of the intention,
@@ -102,7 +104,7 @@ The quid pro quo of Hogan vs. Stone Cold.[^12]
 
 I recognize it's undeserved, a product of the pop that's underserved.
 Undeterred my mind overloaded in the moment and the meaning, 
-Clarity of recall careening, 
+Clarity of recall careens, 
 Dreaming we'd meet again at a time we'd better understand,
 Chalk outlines get constricting when you feather in.[^17]
 You'd curse like sailor with a weathered chin, half a grin,
@@ -110,17 +112,17 @@ Well on your path to betterment.
 
 You got a place, a kid, a job-- the way your moms explained it, 
 A handle on being schizophrenic. 
-Or, an aunt hints you missed the date of your arraignment...
+An aunt hints you missed the date of your arraignment... so is it,
 
 "Let us in, let us sin, just jettison the medicine."
-Throw out all the rules and all the fetterments.
+Throw out all the rules and all enfetterments.
 "Let us win, let's begin", Edison meet elephant...[^13]
 Or is it mostly just embellishment?
 
 Little bit of column A, little bit of calumny.
 Understand you never know, the entrance fee for empathy.
 All in all I'll take the hits as just some needed tempering, 
-Descent from man to Cynic'd be a tempting breed.[^16]
+Descent from man to Cynic'd be a tempting thing.[^16]
 
 Did a woman steal those dogs, did she really feed them glass?
 Did you know the address of the neighborhood pederast?
