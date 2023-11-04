@@ -162,3 +162,6 @@ But to get that you'd need to stand where I'm at.
 [^16]: A lot of the story I got from unreliable rumors/recollections.  Trying to understand other's perspective makes it draining to be around people, especially if there's a lot of questionable facts.  Not great at turning off that part of my brain.
 [^17]: Apologies to the graphic designers if you can't use feathering that way.  
 [^18]: Biggest gaff was misremembering the [xiphoid process](https://healthjade.net/wp-content/uploads/2019/06/xiphoid-process.jpg) as something that would've rhymed.  Couldn't think of any great replacement so I forced xiph*id*.
+
+
+![Pasted image 20231103232331.png|undefined](/img/user/Pasted%20image%2020231103232331.png)
